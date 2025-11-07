@@ -1,0 +1,1 @@
+# Igusa-zetafuncties-van-krommen
